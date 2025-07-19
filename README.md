@@ -1,1 +1,1 @@
-
+PocketDev_PrivacyPolicy
